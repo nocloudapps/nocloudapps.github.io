@@ -1,1 +1,1 @@
-Timeline Notes AI
+Timeline Notes - AI Local
